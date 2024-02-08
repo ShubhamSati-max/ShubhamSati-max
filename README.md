@@ -14,7 +14,7 @@
 
 🔗 Connect with me on LinkedIn: https://www.linkedin.com/in/shubham-sth8/
 
-📚 On a continuous quest for knowledge, I recently completed an MBA from a premium school, and to explore more business intricacies, I completed a 6-month intensive Comprehensive Data Analyst course on the EdTech platform, SkilloVilla, powered by Wipro.
+📚 On a continuous quest for knowledge, I recently completed an MBA from a premium school after Scoring 88.84%ile in CAT exam, and to explore more business intricacies, I completed a 6-month intensive Comprehensive Data Analyst course on the EdTech platform, SkilloVilla, powered by Wipro.
 📖 In my spare time, I channel my creativity into writing stories,novels and cooking.
 
 👨‍💻 My GitHub repository is a treasure trove of projects and insights. Let's collaborate and build something remarkable!
