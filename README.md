@@ -3,6 +3,7 @@
 📊 Management Graduate| Certified in data analytics |Ex- Analyst , I'm also known for my skills in Business development,Client Management 
 
 🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology (Reputed B-school)
+
 💼 My proficiency lies in SQL | EXCEL | TABLEAU | POWER BI
 
 💻 I'm a fervent advocate for data-driven decision-making and I'm always ready to craft impactful data visualizations.
