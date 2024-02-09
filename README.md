@@ -1,6 +1,6 @@
 👋 Hello, I'm Shubham.
 
-📊 Management Graduate| Certified in data analytics |Ex- Analyst , I'm also known for my skills in Business development,Client Management 
+📊 Management Graduate From Institute Of Management Technology CAT :88.84 %iler| Certified in data analytics |Ex- Analyst , I'm also known for my skills in Business development,Client Management 
 
 🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology (Reputed B-school)
 
