@@ -2,8 +2,8 @@
 
 📊 Management Graduate From Institute Of Management Technology CAT :93.34 %iler| Certified in Data analytics |Ex- Analyst , I'm also known for my skills in Business development,Client Management with 2 year experince handled accounts for Tech Mandira,karvy,Cogent.
 
-🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology  2023 Batch
-                      while Bachelor Degree in Mass Communication From Galgotias University with diploma from Dainik Jagran .
+🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology  2023 Batch                                                
+                        while Bachelor Degree in Mass Communication From Galgotias University with diploma from Dainik Jagran .
 
 
 💼 My proficiency lies in SQL | EXCEL | TABLEAU | POWER BI | COREL DRAW |PRESENTATIONS | STATSTICS
