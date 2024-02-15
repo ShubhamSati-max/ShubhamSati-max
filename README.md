@@ -1,12 +1,11 @@
 👋 Hello, I'm Shubham.
 
-📊 Management Graduate From Institute Of Management Technology CAT :88.84 %iler| Certified in Data analytics |Ex- Analyst , I'm also known for my skills in Business development,Client Management 
+📊 Management Graduate From Institute Of Management Technology CAT :93.34 %iler| Certified in Data analytics |Ex- Analyst , I'm also known for my skills in Business development,Client Management with 2 year experince handled accounts for Tech Mandira,karvy,Cogent.
 
-🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology (Reputed B-school)
+🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology (Reputed B-school) & Bachelor Degree in Mass Communication 
 
 
-
-💼 My proficiency lies in SQL | EXCEL | TABLEAU | POWER BI
+💼 My proficiency lies in SQL | EXCEL | TABLEAU | POWER BI | CorelDraw |Presentations |Statstics
 
 💻 I'm a fervent advocate for data-driven decision-making and I'm always ready to craft impactful data visualizations.
 
