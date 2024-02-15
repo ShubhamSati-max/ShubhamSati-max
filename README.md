@@ -5,7 +5,7 @@
 🎓 By education, I hold a degree in MBA Analytics & Marketing From Institute of Management Technology  while Bachelor Degree in Mass Communication From Galgotias University with diploma from Dainik Jagran .
 
 
-💼 My proficiency lies in SQL | EXCEL | TABLEAU | POWER BI | CorelDraw |Presentations |Statstics
+💼 My proficiency lies in SQL | EXCEL | TABLEAU | POWER BI | COREL DRAW |PRESENTATIONS |STATSTICS
 
 💻 I'm a fervent advocate for data-driven decision-making and I'm always ready to craft impactful data visualizations.
 
