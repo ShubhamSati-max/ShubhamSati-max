@@ -1,4 +1,4 @@
-👋 Hello, I'm Shubham.
+👋 Hello, I'm Shubham Sati.
 
 📊 Management Graduate From Institute Of Management Technology CAT :93.34 %iler| Certified in Data analytics |Ex- Analyst |, I'm also known for my skills in Business development,Client Management with 2 year experince handled accounts for Tech Mandira,karvy,Cogent.
 
